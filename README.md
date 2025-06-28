@@ -1,0 +1,1 @@
+# CSOPESYMO_JIRO
